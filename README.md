@@ -1,0 +1,2 @@
+# cyjinternational
+Hello friend, We are the factory cell phone case including the TPU CASE; PC CASE; TPU+PC CASE; SLICON CASE; 2 IN 1 CASE; 3 IN 1 CASE. We have the designers for helping the clients to design their own special cases. The factory is located in PanYu, Guangzhou. All the goods have been checked before shipping . Every day we can produce 100000 cases. The order can be finished with one week. if you no need to design. the speed of prodcuing will be faster.
